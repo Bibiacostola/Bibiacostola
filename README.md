@@ -6,4 +6,4 @@ Minha principal plataforma de estudos é o Alura💋
 00001098604179sp@al.educacao.sp.gov.br
 @wzhbea
 
-![](https://c.tenor.com/GqqiTpy6snoAAAAd/tenor.gif)
+![](https://img1.picmix.com/output/pic/normal/9/4/1/0/11320149_ab39f.gif)
